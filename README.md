@@ -1,4 +1,4 @@
-# Sciencia
+# Sciencia UWU
 Sciencia - Science Club of Uva Wellassa University <br><br>
 Sciencia, Science Club of Uva Wellassa University was initiated for the very first time with the active
             participation of the undergraduates who bear the hope of producing creative elements of UWU. It stands as
